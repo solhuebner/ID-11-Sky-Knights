@@ -1,4 +1,4 @@
-# ID-11-Sky-Knights
+# Sky Knights
 ![Image]
 (http://www.team-arg.org/masterfiles/team-arg-sky/images/banner-ID-11b.png)
 
